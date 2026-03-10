@@ -1,0 +1,1 @@
+# AI_assissted_space_calculus
